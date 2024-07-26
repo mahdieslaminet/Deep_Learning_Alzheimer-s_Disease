@@ -6,5 +6,10 @@ Main Article Re-read video link:
 https://drive.google.com/file/d/1J-vl8enCr3WVUlJYAHmPj3ziudZk2wDz/view?usp=sharing
 Re-written article Re-read video link:
 https://drive.google.com/file/d/1zTU6utJQ0MR6Vye12rDWMiCj-zlrL-CM/view?usp=drive_link
-
+You can access the Unzip format of the Implimentation code of the main Article through this google Drive link:
+https://drive.google.com/drive/folders/19EZGt3M9s3-y4TI4mqTgFjHaCV3cHIQq?usp=sharing
+To access the main Article re-read, copy the following google drive link:
+https://drive.google.com/drive/folders/1cTXAv4unJ5422idWRvmvIG66MnqhVKOq?usp=sharing
+To access the re-written Article re-read, copy the following google drive link:
+https://drive.google.com/drive/folders/1XABn0MdDtgZ5zriK6gk3BjWhToScHJFI?usp=sharing
 
